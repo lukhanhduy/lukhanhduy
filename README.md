@@ -10,5 +10,5 @@
 ### Check out my social medias:
 
 -   💬  [Personal blog](https://lukhanhduy.com/)
--   📹  [Facebook]([https://www.facebook.com/lukhanhduy](https://www.facebook.com/lukhanhduy))
--   🐦  [Twitter]([https://twitter.com/LKhnhDu55647434](https://twitter.com/LKhnhDu55647434))
+-   📹  [Facebook](https://www.facebook.com/lukhanhduy)
+-   🐦  [Twitter]](https://twitter.com/LKhnhDu55647434)
