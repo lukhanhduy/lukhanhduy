@@ -11,4 +11,4 @@
 
 -   💬  [Personal blog](https://lukhanhduy.com/)
 -   📹  [Facebook](https://www.facebook.com/lukhanhduy)
--   🐦  [Twitter]](https://twitter.com/LKhnhDu55647434)
+-   🐦  [Twitter](https://twitter.com/LKhnhDu55647434)
